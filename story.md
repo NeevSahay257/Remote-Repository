@@ -1,3 +1,4 @@
 My Story
 Once upon a time , in a forest , lived a monkey who resided on an almond tree. It was on the banks of the river. In the river , a crocodile and his wife lived.
 One day the crocodile came to the banks and rested under the Almond Tree and the kind hearted monkey offered the crocodile some almonds.
+The crocodile started coming everyday and they become friends. Altought the monkey's plans were different. The monkey thought that the crocodiles could be a threat and he told the other animals to attack the crococdile. So one day the monkey made a lion hide and wait for the crocodile to come . When the crocodile came the lion ran and attacked the crocodile but the crocodile's wife came and saved him and the monkey was then eaten by the crocodiles.
